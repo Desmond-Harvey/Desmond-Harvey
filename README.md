@@ -1,7 +1,7 @@
 # Desmond Harvey
 
 **Business Analyst | Data-Driven Strategist | Financial Operations Specialist**  
-📧 harvey.desmond1012@gmail.com | 📱 (434) 420-8190  
+📧 harvey.desmond1012@gmail.com 
 🔗 [LinkedIn Profile](https://www.linkedin.com/in/desmondharvey1)
 
 ---
